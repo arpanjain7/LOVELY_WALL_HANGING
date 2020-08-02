@@ -1,2 +1,0 @@
-# LOVELY_WALL_HANGING
- 
